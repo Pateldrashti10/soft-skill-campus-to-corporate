@@ -1,1 +1,1 @@
-# soft-skill-campus-to-corporate
+# soft-skill-campus-to-corporate progect
